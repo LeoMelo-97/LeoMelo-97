@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Leonardo, 24 years old.  
+- 👋 Hi, I’m @LeoMelo-97, 24 years old, brazilian.  
 - 👀 I’m interested in learnnig how to become a Dev
 - 🌱 I’m currently learning my way into the Dev world
 - 💞️ I don't know what I’m looking to collaborate on, but I'm willing to try something new
